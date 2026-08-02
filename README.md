@@ -8,3 +8,5 @@
 ⡞⠳⣄⣀⣠⠞⢷ ֹ۪
   <br>
 𝑀𝑒𝑎𝑛𝑡 𝑇𝑜 𝐵𝑒 ⋅ 𝐶𝑢𝑛𝑡𝑠𝑛𝑖𝑓𝑓𝑒𝑟 ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10
+<br>
+<img scr="https://github.com/cemetriiez/--/blob/e245b54e4f3449a5e81724a3d53484e75d1a0f73/tumblr_60b1d134de078258c252be15afd3e4ff_3e3191d7_250.gif">
