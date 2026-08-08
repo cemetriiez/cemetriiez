@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/cemetriiez/--/blob/c6b93549d787a42fa9e68e76c3d136803dd127d1/b4fb81d971f09780cf84f9ba9814a8f0-removebg-preview.png" width="400">  
+<img src="https://github.com/cemetriiez/--/blob/d4cb578fcdbff8107ecdf10b45af1f08de95bc86/bc2b01b1454eb523278addce736bbb26.jpg" width="400">  
   <br>
   <img src="https://hits.sh/github.com/cemetriiez.svg?style=plastic&label=%F0%9D%91%8F%F0%9D%91%92%F0%9D%91%8E%F0%9D%91%9F%F0%9D%91%A0%3A&extraCount=33&color=b495ae&labelColor=694a63">
   <br>
